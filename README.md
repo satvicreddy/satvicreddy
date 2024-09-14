@@ -1,5 +1,5 @@
 - 👋 Hi, I’m satvicreddy
-- 🌱 I’m currently pursuing B.Tech in SRM
+- 🌱 Under Gradutaed student from SRM University
 - 💞️ I’m looking forward to learn as many things as I can
 
 <!---
